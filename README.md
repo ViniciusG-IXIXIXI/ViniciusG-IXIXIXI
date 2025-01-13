@@ -3,7 +3,7 @@
 
 - 🔭 Atualmente não estou trabalhando...
 - 🌱 Atualmente estou aprendendo ...
-- 📫 How to reach me: vinicius.g.o2710@gmail.com
+- 📫 Contato: vinicius.g.o2710@gmail.com
 
 <br>
 
